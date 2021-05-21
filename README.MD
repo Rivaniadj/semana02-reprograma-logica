@@ -1,0 +1,1 @@
+Estou sentindo ainda muita dificuldade, pois é meu primeiro contato com a área de TI. Ás vezes sinto vontade de desistir, mas vou tentar.
